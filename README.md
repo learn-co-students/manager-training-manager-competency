@@ -1,0 +1,1 @@
+# manager-training-manager-competency
